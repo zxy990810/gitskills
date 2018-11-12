@@ -1,1 +1,1 @@
-Being an animal is quick.
+Being an animal IS fast.
